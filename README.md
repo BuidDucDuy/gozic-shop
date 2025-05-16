@@ -1,0 +1,1 @@
+# gozic-shop
